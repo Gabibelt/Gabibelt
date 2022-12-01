@@ -13,7 +13,7 @@
 
 -    Ventas, neuroventas, formación de empresas, administración, economía
 
-- 📫 Como me contactan **gabrielbeltrando@gmail.com**
+- 📫 mi email es **gabrielbeltrando@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
