@@ -5,7 +5,7 @@
 
 - 🌱Administración de Empresas **Propia y sociedades**
 
-- 👯 Trabaje en **Nesbel.com**
+- 👯 Trabajo en **Asociados.ar**
 
 - 🤝 Fundador **Pantera Hockey Club/Liga Posadeña de Hockey**
 
